@@ -8,3 +8,7 @@ Genialster Wissenschaftler aller Universen. Leichter Hang zum Alkohol und neigt 
 * Hang zum Alkohol
 * Impulsiv
 
+> Ich sag's dir nur ungern, aber was die Leute "Liebe" nennen 
+> ist die chemische Reaktion der tierischen Fortpflanzung. 
+> Sie schlägt heftig ein, dann verblasst sie langsam. 
+
